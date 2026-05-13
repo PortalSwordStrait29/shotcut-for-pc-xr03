@@ -1,4 +1,4 @@
-# 
+# instant Shotcut for PC | Shotcut for Windows Automation | multi-track-editing + audio-sync offers the most advanced Shotcut for PC | Shotcut for Windows automation, with
 
 
 
